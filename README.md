@@ -1,4 +1,4 @@
-# eventos-tech-es
+# EVENTOS-ES
 Lista de eventos no Espírito Santo
 Como usar?
 Navegue pelos meses abaixo e encontre o evento do ES perto de você.
