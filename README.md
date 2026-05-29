@@ -22,3 +22,11 @@ Fevereiro:
 * 6,7,8: [Cachoeiraço](https://www.instagram.com/p/DUYx8FGEz_C/) - *Cachoreiro de Itapemirim/ES*
 * 7,8: [Carnaviana](https://viana.es.gov.br/noticia/ler/8768/e-hora-de-fazer-a-fantasia-ganhar-vida-vem-ai-o-carnaviana-2026) - *Viana/ES*
 * 13,14,15,16,17,18: [Prainha Vive](https://www.instagram.com/prainhavive/?hl=pt) - *Vila Velha/ES*
+* 13,14,15,16,17: [Carnaval 2026 - Praias de Marobá e Neves](https://presidentekennedy.es.gov.br/noticia/3420) - *Presidente Kennedy/ES*
+* 13,14,15,16,17: [Santo Boteco - Carnaval de Marchinhas](https://www.instagram.com/santobotecosantateresa/) - *Santa Teresa/ES*
+* 21: [Dia Nacional do Imigrante Italiano](https://www.es.gov.br/Noticia/dia-nacional-do-imigrante-italiano-sera-comemorado-com-homenagens-no-palacio-anchieta) - *Santa Teresa/ES*
+
+Março:
+* 4: [2° Seminário Café Conilon](https://www.instagram.com/p/DUGNw8zEZWs/) - *Jaguaré/ES*
+* 6,7: [3ª Feira da Mulher Empreendedora do ES](https://www.instagram.com/feiradamulherempreendedoradoes/) - *Cariacica, Guarapari, Serra, Viana, Vila Velha, Vitória/ES*
+* 
