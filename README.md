@@ -16,3 +16,9 @@ Janeiro:
 * 10: [BELO & THIAGO MARTINS](https://multiplacemais.com.br/eventos/10-jan-belo-thiago-martins/) - *Guarapari/ES*
 * 16: [BELL MARQUES, JAMMIL & ANDRÉ LELIS](https://multiplacemais.com.br/eventos/16-jan-bell-marques-jammil-andre-lelis/) - *Guarapari/ES*
 * 17: [MARCELO FALCÃO & CIDADE NEGRA](https://multiplacemais.com.br/eventos/17-jan-marcelo-falcao-cidade-negra/) - *Guarapari/ES*
+* 24: [LAUANA PRADO & OS CARAS DO ARROCHA](https://multiplacemais.com.br/eventos/24-jan-launa-prado-e-os-caras-do-arrocha/) - *Guarapari/ES*
+
+Fevereiro: 
+* 6,7,8: [Cachoeiraço](https://www.instagram.com/p/DUYx8FGEz_C/) - *Cachoreiro de Itapemirim/ES*
+* 7,8: [Carnaviana](https://viana.es.gov.br/noticia/ler/8768/e-hora-de-fazer-a-fantasia-ganhar-vida-vem-ai-o-carnaviana-2026) - *Viana/ES*
+* 13,14,15,16,17,18: [Prainha Vive](https://www.instagram.com/prainhavive/?hl=pt) - *Vila Velha/ES*
